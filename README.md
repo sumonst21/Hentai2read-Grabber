@@ -1,1 +1,1 @@
-# Hentai2read-Grabber
+# Hentai2read-Grabber [BETA]
